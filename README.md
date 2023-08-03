@@ -1,0 +1,9 @@
+Café Tango - Cafetería Familiar en Argentina:
+
+Café Tango es una encantadora cafetería familiar ubicada en Argentina que combina la pasión por el café y la música tradicional del tango. El lugar busca brindar una experiencia única y acogedora para sus clientes, fusionando los sabores del café de calidad con el arte y el ambiente del tango argentino.
+
+Oferta de productos y servicios:
+En Café Tango, los clientes pueden disfrutar de una amplia variedad de bebidas de café, desde espressos perfectamente elaborados y deliciosos lattes hasta café con leche estilo argentino. La carta también ofrece opciones de café frío para los días calurosos, como cafés helados y batidos de café. Además del café, Café Tango sirve una selección de exquisitos postres y bocadillos inspirados en la tradición culinaria argentina. Los amantes del tango también pueden disfrutar de eventos culturales especiales, como noches de milonga y presentaciones de música en vivo, que añaden un toque distintivo a la experiencia en el lugar.
+
+Público objetivo:
+Café Tango apunta a atraer tanto a locales como a turistas que buscan una experiencia auténtica y familiar. Los amantes del café encontrarán aquí un refugio acogedor para disfrutar de una buena taza de café con amigos y familiares. Además, el lugar busca atraer a los entusiastas del tango, tanto bailarines como espectadores, que deseen disfrutar de la música y el baile mientras saborean exquisitas bebidas y bocados.
