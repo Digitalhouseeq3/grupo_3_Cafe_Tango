@@ -14,3 +14,6 @@ https://www.cafesoquendo.com/
 https://pabloandrustys.com.au/
 https://www.jacu.no/
 https://littlecovecoffee.com.au/basket/
+https://flatnwhite.com.ar/
+
+Elegimos estas paginas como referencia ya que todas son de negocios similares al nuestro y nos proporcionan varios modelos en los cuales inspirarnos para crear nuestra pagina web.
