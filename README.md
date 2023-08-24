@@ -18,5 +18,5 @@ https://flatnwhite.com.ar/
 
 Elegimos estas paginas como referencia ya que todas son de negocios similares al nuestro y nos proporcionan varios modelos en los cuales inspirarnos para crear nuestra pagina web.
 
-Los wireframes de nuestra web lo hicimos en figma:
+Los wireframes de nuestra web los hicimos en figma:
 https://www.figma.com/file/vyH0EC7rFpcQKNimzJJqZL/Proyecto-D-house?type=design&node-id=0%3A1&mode=design&t=cr3WLhqX5m2MG4pY-1
